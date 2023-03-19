@@ -6,3 +6,6 @@ https://drive.google.com/drive/folders/1hj1ySTmT1uvt-aySBAlxRnxvX-v0IKXv?usp=sha
 
 
 https://github.com/google-coral
+
+
+程式有個資不給看🤣
